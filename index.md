@@ -23,8 +23,7 @@ I’m an experienced IT Development Manager at HNI Corporation with 22+ years in
 
 ## 🎓 Education
 
-- MBA – Tippie College of Business, University of Iowa  
-- Bachelor’s in Computer Science
+- MBA – Tippie College of Business, University of Iowa   
 
 ---
 
